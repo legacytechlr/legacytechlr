@@ -1,4 +1,4 @@
-- 👋 Hi, eChris Here, Product Manager & Co-Founder Legacy Tech Inc
+- 👋 Hi, Christian here, otherwise known as eChris. The Product Manager & Co-Founder of Legacy Tech Inc
 - 👀 Always searching for the best loyal and humble teams to work with in disrupting the Liberian space.
 - 🌱 I'm deeply into People, Products, Projects, Process, Profits
 - 💞️ I’m looking to collaborate on ...
